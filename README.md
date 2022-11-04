@@ -1,2 +1,3 @@
 # FiveM-Resources
-s
+
+📚 Contact me on discord: Nulled#2708.
